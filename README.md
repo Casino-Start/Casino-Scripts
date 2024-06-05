@@ -1,9 +1,9 @@
 # Casino-Scripts
-Start Your Online Casino Today witch our pre-made Online Casino Scripts - [https://www.buy-casino-scripts.com/](https://bit.ly/49UZytI)
+Start Your Online Casino Today witch our pre-made Online Casino Scripts - [https://www.buy-casino-scripts.com/](https://bitly.cx/7s3Vn)
 
-**TO GET YOUR CASINO SCRIPTS/SCOURCE ORDER AT** [https://www.buy-casino-scripts.com/shop](https://bit.ly/3UBt9Ec)
+**TO GET YOUR CASINO SCRIPTS/SCOURCE ORDER AT** [https://www.buy-casino-scripts.com/shop](https://bitly.cx/JZ1mo)
 
-**Get Golden-X Online Casino:** [https://www.buy-casino-scripts.com/product/gucci-online-casino/](https://bit.ly/3UmwsxY)
+**Get Golden-X Online Casino:** [https://www.buy-casino-scripts.com/product/gucci-online-casino/](https://bitly.cx/zEq7)
 
 ## SCREENSHOTS
 
